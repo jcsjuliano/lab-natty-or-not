@@ -77,3 +77,5 @@ Avanços na Saúde: Na área da saúde, a IA tem proporcionado diagnósticos mai
 Inovação em Negócios: Ferramentas de IA como Anyword e Runway têm sido usadas para criar campanhas de marketing mais eficazes, vídeos inovadores e estratégias de negócios mais inteligentes.
 
 Pesquisa e Desenvolvimento: A IA está acelerando a inovação em diversos campos, desde a ciência dos materiais até a exploração espacial, permitindo descobertas e avanços mais rápidos.
+![importância da inteligência artificial para o mundo atual com cores vivas e detalhes nas funções e atividades das pessoas](https://github.com/user-attachments/assets/fcdac1e2-b2f7-4416-abe2-e8d95ab2501a)
+![importância da inteligência artificial para o mundo atual com detalhes nas funções e atividades das pessoas](https://github.com/user-attachments/assets/7926153f-92b3-4962-b428-ca74a934f4a5)
